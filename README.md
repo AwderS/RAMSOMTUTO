@@ -1,0 +1,4 @@
+BUENO ESPERAMOS QUE DISFRUTES
+NUESTRO SOFTWARE
+----------------------------
+BYE ;)
